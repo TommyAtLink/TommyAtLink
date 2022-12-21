@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TommyAtLink
-- 👀 I’m interested in ...
+- 👀 I’m interested in @TommyAtLink
 - 🌱 I’m currently learning stuff
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Link
 - 📫 How to reach me (I wonder about this)
