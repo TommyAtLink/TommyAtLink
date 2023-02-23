@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @TommyAtLink
 - 👀 I’m interested in @TommyAtLink
 - 🌱 I’m currently learning stuff
-- 💞️ I’m looking to collaborate on Link
-- 📫 How to reach me (I wonder about this)
+- 💞️ I’m looking to collaborate with [Link Money](https://www.link.money/)
+- 📫 How to best reach me (I wonder about this)
+    - [LinkedIn](https://www.linkedin.com/in/tmjchu/) Maybe???
